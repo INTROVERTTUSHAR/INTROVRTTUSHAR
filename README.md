@@ -1,4 +1,4 @@
-![logo](https://github.com/INTROVERTTUSHAR/DaNgErOuSbOyTusHaR/blob/main/dt1.png)
+![logo](https://github.com/INTROVERTTUSHAR/INTROVRTTUSHAR/blob/main/20260202_191538.jpg))
 
 <h1 align="center">Hi 👋, 𝐈'𝐌 INTROVERT 𝐓𝐔𝐒𝐇𝐀𝐑</h1>
 <h3 align="center"> INTROVERT TUSHAR</h3>

@@ -12,9 +12,9 @@ src="https://media.tenor.com/rePDfDWO3XoAAAAd/hacking.gif">
 
 - 👨‍💻 All of my projects are available at [(https://github.com/INTROVERTTUSHAR)](https://github.com/INTROVERTTUSHAR)
 
-- 📝 I regularly write articles on [https://DANGEROUSBOYTUSHAR.blogspot.com](https://DANGEROUSBOYTUSHAR.blogspot.com)
 
-- 📫 How to reach me **dangerousboytushar@gmail.com**
+
+- 📫 How to reach me *introvertboytushar@gmail.com*
 
 - 📄 Know about my experiences [Html, Css.](Html, Css.)
 
